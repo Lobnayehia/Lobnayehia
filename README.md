@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lobnayehia
+- 👀 I’m interested in Cloud DevOps Engineering 
+- 🌱 I’m currently Looking forward to AWS Cloud Practioner Certification 
+- 💞️ I’m looking to graduate from Information Techonolgy Institute ITI 
+- 📫 How to reach me : Lobnayehia@gmail.com
+- ⚡ fact: I am Electronics and Communication Engineer
+- ✨  " Always Looking Forward for Better Verision Of my self  "
